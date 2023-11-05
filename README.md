@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @167z
+- 👋 Hi, I’m Zoey。
 - 👀 I’m interested in sing and reading.
 - 🌱 I’m currently learning c.
 - 💞️ I’m looking to collaborate on study.
